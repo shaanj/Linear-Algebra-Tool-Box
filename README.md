@@ -67,7 +67,7 @@ Gaming
 - Playing Smash is therapeutic, CMV.
 
 
-
+I know these won't happen overnight, but I guarantee you will persevere.
 
 
 
